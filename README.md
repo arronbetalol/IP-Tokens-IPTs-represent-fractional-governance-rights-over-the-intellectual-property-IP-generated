@@ -1,0 +1,1 @@
+# IP-Tokens-IPTs-represent-fractional-governance-rights-over-the-intellectual-property-IP-generated
